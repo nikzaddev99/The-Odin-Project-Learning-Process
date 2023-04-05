@@ -1,0 +1,2 @@
+this training was include links and images which i leaned pretty good.
+that was some stuff like moving and addressing trough directions, that reminds terminal to me and my terminal knowledge was a litile helpfoul there.
